@@ -1,4 +1,4 @@
-# Hi there, I'm Peace 👋
+# Hi there, I'm Tomiwa 👋
 
 ## About Me
 
